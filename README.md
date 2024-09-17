@@ -1,6 +1,4 @@
-* 👩🏻‍💻 senior AI Student at IAU .
-  
-• 🌱 I'm currently learning IoT an Software Engineering.
+* 👩🏻‍💻Bachelor of Science in Artificial Imtelligence .
 
 • 📫 How to reach me abrarsebiany15@gmail.com
 
